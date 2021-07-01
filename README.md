@@ -1,2 +1,1 @@
-# ZzZzZzZXCoo.github.io.
-Ok
+# ZzZzZzZXCoo.github.io
